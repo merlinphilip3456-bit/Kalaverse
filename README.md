@@ -110,3 +110,23 @@ Merlin Philip
 # 📜 License
 
 This project is created for educational and internship purposes.
+
+<img width="1920" height="1020" alt="image" src="https://github.com/user-attachments/assets/02dfb001-9b48-4ffb-9e39-996817251812" />
+
+<img width="1920" height="1020" alt="image" src="https://github.com/user-attachments/assets/89565d1d-1401-49a9-8a0c-51aedcc01d5b" />
+
+<img width="1920" height="1020" alt="image" src="https://github.com/user-attachments/assets/6faeb746-673f-4e87-9b25-755905088397" />
+
+<img width="1920" height="1020" alt="image" src="https://github.com/user-attachments/assets/8cd1c338-c113-4cce-9821-9657a7b647ae" />
+
+<img width="1920" height="1020" alt="image" src="https://github.com/user-attachments/assets/67c5e68a-b2f7-42cb-bae8-1e396662a94e" />
+
+<img width="1920" height="1020" alt="image" src="https://github.com/user-attachments/assets/f4618c44-1b75-4985-a27d-edf61b0eaa8b" />
+
+<img width="1920" height="1020" alt="image" src="https://github.com/user-attachments/assets/11aee8a0-1548-40b7-b3b0-17946ba89bfa" />
+
+
+
+
+
+
